@@ -217,6 +217,42 @@
 <img width="1052" height="671" alt="image" src="https://github.com/user-attachments/assets/f4217fcf-ff2d-4580-98fb-10bc1d0125d0" />
 
 
+## Комментарии от Ирины
+
+## На этапе после регистрации , перед переходом в приложение , много лишней информации как по мне . 
+
+У вас первоначальные блоки оформлены информацией которую человек и так знает про свой инстаграм . Я бы поступила иначе ,   информация изначально должна жить полезной, то что может вызвать интерес, после надавила бы на  болевую  точку в нише, то чего не хватает клиенту, и таким образом  перевела бы его в приложение.
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/729a1e1b-3367-4409-ab1a-f865b31cdf74" />
+
+
+## Чтобы я не вводила в поисковике блогеров ничего не находит
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/9767e030-2709-41d5-9f2c-1a9dbb6ba256" />
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/41d28618-1949-41ab-8347-5be186e2cbb7" />
+
+
+## Непонятный интерфейс поиска блогеров
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/24c896ba-b7e9-487f-b264-1b1dff019b49" />
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/fd31be05-a85c-48bc-a9e1-e293a6ea7e5e" />
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/60c8684e-f7a0-4d43-a818-7e49419adc02" />
+
+
+## Слишком много текста в блоке аналитика
+
+<img width="589" height="1280" alt="image" src="https://github.com/user-attachments/assets/bf12c295-26db-42c6-9270-74653f1fd318" />
+
+Предложения надо все таки разделить. Или меньше сделать текста, ну вот его не хочется читать((( потому что оформлен не очень .
+
+
+
+
+
+
 
 
 
